@@ -1,0 +1,2 @@
+# Delegatsiya
+Delegatsiya haqida
